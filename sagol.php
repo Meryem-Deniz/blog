@@ -1,2 +1,0 @@
-sagol
-fhggjh;i
